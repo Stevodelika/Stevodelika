@@ -4,8 +4,6 @@
 
 🌱 I’m currently learning computer science at SGD...
 
-💞️ I’m looking to collaborate with humans.
-
 📫 How to reach me: Discord, socials, or via email.
 
 ⚡ Fun fact: MTG has been my hobby since I was a teenager.
